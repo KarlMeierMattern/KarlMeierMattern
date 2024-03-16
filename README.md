@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on just about any web-applications (hmu!)
 - 🤔 I’m looking for help with any cool web frameworks I should be adding to my learning list
 - 💬 Ask me about anything, I'm always willing to help!
-- 📫 How to reach me: karlmeiermattern@gmail.com or https://www.linkedin.com/in/karl-alexander-meier-mattern-16a3b919a/
+- 📫 How to reach me: [email](karlmeiermattern@gmail.com) or [LinkedIn](https://www.linkedin.com/in/karl-alexander-meier-mattern-16a3b919a/) or [X](https://twitter.com/Champagne_Col)
 - ⚡ Fun fact: I love swimming, trail running, cycling, and weightlifting!
 
-This is profile [X](https://twitter.com/Champagne_Col)
+This is profile 
