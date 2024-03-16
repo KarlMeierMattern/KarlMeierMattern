@@ -11,4 +11,3 @@
 - ⚡ Fun fact: I love swimming, trail running, cycling, and weightlifting!
 
 Happy shipping!
-
